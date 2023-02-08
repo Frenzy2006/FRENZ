@@ -1,38 +1,34 @@
-# FRENZ ( Louis Gabriel A. Delovieres ) ( 9-Campion) (PORTFOLIO)
+Louis Gabriel A. Delovieres (FRENZ)
+
+ABOUT ME SECTION
+|---|
+I am Louis Gabriel A. Delovieres, a ninth grader in Ateneo de Naga University.  Most of my friends call me "Gab". Teachers and classmates describe me as the "Introvert Delovieres" for among my siblings I am the quiet one.  I maybe quiet but never anti-social.
 
 
-**ABOUT ME**
+YOUR GOALS SECTION
+|----|
+Becoming an architect is my ultimate goal 
 
-*My Goals*
-|-------|
-My goal is to graduate and become a successful architect.
 
-*My sports*
-|----------|
-The Sports that I Like is basketball and badminton, the club that I've joined is Mobile app Development
-The Sports that I Like is basketball and badminton
+SPORTS/CLUB/GROUPS SECTION
+|---|
+▪Basketball and badminton are my favorite sports
+▪I am a proud member of Mobile App Development Club
 
-*Reading Section*
-|--------|
-The reading section that I often visit is the entertainment, 
 
-My Reflection or reflection reading
-|--------|
+WHAT I'M READING SECTION
+|---|
+▪The Entertainment Section is what I often visit
 
-Between a blade of grass and a tree, 
-keep your eyes open, 
-even if it hurts.
 
-Creations
+REFLECTIONS/WRITE UPS
+|----|
+"Make it simple but significant"
+                                -Anonymous
 
-*Awards*
-|----------|
-Got My first Honor in Grade 8
-
-*Favorite subject*
-|----------|
-PE, COMPUTER
-
-*PASSION PROJECT*
-|-----------|
-PLAYING TOURNAMENT PROJECT
+I appreciate life more when things are kept simple.
+|---|
+YOUR CREATIONS (DRAWINGS, SKETCHES, VIDEO CLIPS, ETC.)
+|---|
+ACCOLADES,CELEBRATIONS, RECOGNITIONS, AWARDS SUCCESSES
+In Grade 8, I received an academic award.
