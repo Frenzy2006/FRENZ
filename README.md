@@ -1,5 +1,6 @@
 Louis Gabriel A. Delovieres (FRENZ)
 
+
 ABOUT ME SECTION
 |---|
 I am Louis Gabriel A. Delovieres, a ninth grader in Ateneo de Naga University.  Most of my friends call me "Gab". Teachers and classmates describe me as the "Introvert Delovieres" for among my siblings I am the quiet one.  I maybe quiet but never anti-social.
